@@ -1,4 +1,5 @@
-![Mockup-iphone](https://github.com/user-attachments/assets/d16424a2-75ef-4dbe-b0da-83379a518527)
+![Mockup-iphone](https://github.com/user-attachments/assets/bf3448f9-68a8-486c-bec0-e9f84477fee4)
+
 
 
 
